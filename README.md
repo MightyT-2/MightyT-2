@@ -1,3 +1,7 @@
 Hello, I’m @MightyT-2.
-I’m interested in computers and foreign languages, and
-I’m currently learning Indonesian, a number of programming languages, and how to network.
+My activities include anything to do with languages or computers. I am currently in my senior year studying Computer Science and Cybersecurity.
+
+Contacts:
+github.com/MightyT-2/
+timothypowell.net
+www.linkedin.com/in/tim-powell-976577253/
